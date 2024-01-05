@@ -14,7 +14,8 @@
 * Red Dead Redemption 2
 * Cyberpunk 2077
 * Magicka
-- 🌱 I’m currently learning :yum: physics :yum:
+* Big women
+## 🌱 I’m currently learning :yum: physics :yum:
 
 <!---
 andrushechka37/andrushechka37 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
