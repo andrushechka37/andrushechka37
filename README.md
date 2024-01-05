@@ -1,19 +1,19 @@
 # I’m :heart: ANDREY :heart:
 ## 👀 I’m interested in:
-* Counter-Strike: Global Offensive
-* Assassin's Creed
-* Battlefield
+* Counter-Strike: Global Offensive :heart_eyes:
+* :kissing: Assassin's Creed
+* Battlefield :gun:
 * Grand Theft Auto
 * Tom Clancy's Rainbow Six
-* DuckTales
+* :sweat_drops: DuckTales 
 * Fallout
-* Portal
-* Big women
+* :point_right: Portal
+* Big women :smirk:
 * Doom
-* Dishonored
+* Dishonored :gem:
 * Far cry
-* Red Dead Redemption 2
-* Cyberpunk 2077
+* :grinning: Red Dead Redemption 2
+* Cyberpunk 2077 :point_left:
 * Magicka
 ## 🌱 I’m currently learning :yum: physics :yum:
 
